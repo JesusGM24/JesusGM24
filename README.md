@@ -1,5 +1,11 @@
 # JesusGM24
-Bonjour,
-Je m'appelle Jesus, j'aime la techno et les arts.
-e-mail : jesusgarcia.m20@hotmail.com
-Intétêts: Gaming
+
+Jesus Isaias Garcia Marroquin
+
+Champs d'intérêt;
+Dessiner, Jeux-videos, techno, manga, musique, pc gaming.
+
+Perspective de carrière:
+-Percer dans une nouvelle ère de la programmation,
+-Acquérir de l'expérience dans ce domaine,
+-Utiliser ma créativité pour obtenir des résultats novatuer.
